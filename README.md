@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ragurajaprakash
-- 👀 I’m interested in trading
-- 🌱 I’m currently learning how to trade
-- 💞️ I’m looking to collaborate on cryptocurrency 
+- 👀 I’m interested in trading cryptocurrency 
+- 🌱 I’m currently learning everything about cryptocurrency 
+- 💞️ I’m looking to collaborate - crypto/digital world 
 - 📫 How to reach me kragurajaprakash@gmail.com
 
 <!---
